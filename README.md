@@ -1,7 +1,7 @@
 # Mathematics_Physics_Chemistry_Books
 80、90年代小学初中高中数理化教材, 大学数学教材
 
-链接: https://caiyun.139.com/m/i?005CiwHJ1o8Rg  提取码:vTVL
+链接: https://caiyun.139.com/m/i?005Chj7tHTQ6T  提取码:GKqc
 
 80年代 90年代 小学数学 一年级到六年级 人教版
 
@@ -224,6 +224,20 @@
 
 尚书 左传 国语 战国策 
 
+安徽师范大学数学本科培养方案
+
+安徽师范大学数学本科课程大纲
+
+安徽师范大学数学与应用数学专业2021版人才培养方案
+
+南京大学数学本科培养方案
+
+南京大学数学系培养方案2021
+
+
+南京大学计算机科学与技术本科培养方案
+
+南京大学计算机类本科培养方案
  
 链接：https://pan.baidu.com/s/1QfkpcxRH6y2H7NBzeAFIsg?pwd=8scn
 提取码：8scn
