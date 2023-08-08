@@ -1,7 +1,9 @@
 # Mathematics_Physics_Chemistry_Books
 小学 初中 高中 数理化自学 大学数学 甲种本 中学数学实验教材
 
-链接: https://caiyun.139.com/m/i?005CifhCb9QBP  提取码:JHHY
+链接: https://caiyun.139.com/m/i?005Ci1Yqyz9qj  提取码:C10P
+
+如何学习中学数学 物理 化学 生物 语文 英语 https://zhuanlan.zhihu.com/p/648742148
 
 小学数学建议重点学习
 
