@@ -13,11 +13,25 @@
 
 提取码：8scn 
 
+
 如何学习语文 https://zhuanlan.zhihu.com/p/651058124
 
 如何学习中学数学 物理 化学 生物 语文 英语 https://zhuanlan.zhihu.com/p/648742148
 
 如何安排小学6年 初中3年 高中3年的学习进度 https://zhuanlan.zhihu.com/p/648762200
+
+中医相关资料
+
+链接:https://caiyun.139.com/m/i?005CiLfU8EgtF
+
+提取码:M4R1
+
+闻思修相关资料
+
+链接:https://caiyun.139.com/m/i?005CcrKCYw1cx
+
+提取码:VUqm
+
 
 
 ### 小学数学建议重点学习  
