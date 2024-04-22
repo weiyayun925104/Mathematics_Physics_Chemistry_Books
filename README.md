@@ -5,9 +5,10 @@
 数学 物理 化学 生物 英语 语文 大学数学专业培养方案 大学计算机科学与技术专业培养方案
 
 
-链接:https://caiyun.139.com/m/i?005Chz3cBp1WI 
+链接:https://caiyun.139.com/m/i?005Ci36VT0gu1 
 
-提取码:n0fM 
+提取码:Px5C 
+
 
 
 链接：https://pan.baidu.com/s/1QfkpcxRH6y2H7NBzeAFIsg?pwd=8scn 
