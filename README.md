@@ -4,11 +4,9 @@
 
 数学 物理 化学 生物 英语 语文 大学数学专业培养方案 大学计算机科学与技术专业培养方案
 
+链接:https://caiyun.139.com/m/i?005CcWS0XTreQ 
 
-链接:https://caiyun.139.com/m/i?005Ci36VT0gu1 
-
-提取码:Px5C 
-
+提取码:RaSo 
 
 
 链接：https://pan.baidu.com/s/1QfkpcxRH6y2H7NBzeAFIsg?pwd=8scn 
@@ -21,6 +19,17 @@
 如何学习中学数学 物理 化学 生物 语文 英语 https://zhuanlan.zhihu.com/p/648742148
 
 如何安排小学6年 初中3年 高中3年的学习进度 https://zhuanlan.zhihu.com/p/648762200
+
+如何正确认识读书的作用 https://zhuanlan.zhihu.com/p/656298645
+
+中学数学实验教材 第六册 上 内容(提供最新pdf下载) https://zhuanlan.zhihu.com/p/649014003
+
+数理化自学丛书 甲种本 中学数学实验教材 https://zhuanlan.zhihu.com/p/589946729
+
+1949-2000 中小学 数理化 教材史 教学大纲汇编 https://zhuanlan.zhihu.com/p/693926601
+
+网盘资料分享 https://zhuanlan.zhihu.com/p/687003344
+
 
 中医相关资料
 
