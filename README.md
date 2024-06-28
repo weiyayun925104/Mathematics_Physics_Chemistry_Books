@@ -5,9 +5,9 @@
 数学 物理 化学 生物 英语 语文 大学数学专业培养方案 大学计算机科学与技术专业培养方案
 
 
-链接:https://caiyun.139.com/m/i?005CctcvQvKJg 
+链接:https://caiyun.139.com/m/i?005Cj1Jml04Fn 
 
-提取码:ERii 
+提取码:4aXq 
 
 
 链接：https://pan.baidu.com/s/1QfkpcxRH6y2H7NBzeAFIsg?pwd=8scn 
