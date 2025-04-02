@@ -4,6 +4,8 @@
 
 数学 物理 化学 生物 英语 语文 大学数学专业培养方案 大学计算机科学与技术专业培养方案
 
+网盘资料分享 https://zhuanlan.zhihu.com/p/687003344
+
 
 链接:https://caiyun.139.com/m/i?2hRG3eWXgZH5n 
 
@@ -29,7 +31,6 @@
 
 1949-2000 中小学 数理化 教材史 教学大纲汇编 https://zhuanlan.zhihu.com/p/693926601
 
-网盘资料分享 https://zhuanlan.zhihu.com/p/687003344
 
 
 中医相关资料
